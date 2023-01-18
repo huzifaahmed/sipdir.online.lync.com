@@ -1,0 +1,1 @@
+# sipdir.online.lync.com
